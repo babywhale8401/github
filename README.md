@@ -1,3 +1,3 @@
 ﻿# github
-please check the information  becarefully
+please check the information  becareful
 hehe
